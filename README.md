@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **prasantpoudel33@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1pTQyohe6J0FYiU7uDoDWCRoj_6ehOGD1b8g-xtR4cak/edit?usp=sharing](https://docs.google.com/document/d/1pTQyohe6J0FYiU7uDoDWCRoj_6ehOGD1b8g-xtR4cak/edit?usp=sharing)
+- 📄 Know about my experiences https://docs.google.com/document/d/10pPWowpAIibTQpo69XBt-CPtVIWkqPeW9zDvn0S7CeM/edit?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
