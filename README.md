@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **prasantpoudel33@gmail.com**
 
-- 📄 Know about my experiences https://docs.google.com/document/d/10pPWowpAIibTQpo69XBt-CPtVIWkqPeW9zDvn0S7CeM/edit?usp=sharing
+- 📄 Portfolio https://prasantpoudel.github.io/Portfolio/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
